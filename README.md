@@ -1,1 +1,26 @@
-# airliborit
+# airliborit this is game.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
